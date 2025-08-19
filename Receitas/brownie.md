@@ -1,7 +1,7 @@
-## Brownie super fácil
+## Brownie super fácil 🍫
 **Tempo:** 40 min
 **Porções:** 8
-## Ingredientes:
+## Ingredientes: 📜
 - 6 colheres (sopa) bem cheias, de margarina sem sal
 - 1/2 xícara (chá) chocolate em pó
 - 2 xícaras (chá) açúcar
@@ -12,7 +12,7 @@
 - 4 ovos
 - 1 colher (chá) de extrato ou essência de baunilha
 - 1/2 xícara (chá) de nozes picadas ou castanhas de caju granuladas
-## Modo de preparo:
+## Modo de preparo: 👨‍🍳
 1. Misture os ovos e o açúcar.
 2. Em seguida, agregue todos os outros ingredientes até formar um creme uniforme.
 3. Despeje em uma assadeira, forrada com papel-manteiga e leve ao forno médio por 40 minutos.
