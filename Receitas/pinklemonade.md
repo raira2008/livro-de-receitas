@@ -1,5 +1,5 @@
 ## Pink Lemonade 🍓
-**Tempo:** 15
+**Tempo:** 15 min
 **Porções:** 3
 ## Ingredientes 📜
 - 1 xícara de Sumo de Limão Castelo
